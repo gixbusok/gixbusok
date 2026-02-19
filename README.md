@@ -4,7 +4,7 @@
 <p align="center">★ in love w kiwi (and elijah)
 <p align="center">★ 𝙘𝙝𝙚𝙘𝙠 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤! :)
 
-<p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://onekinnie.straw.page">straw</a> • <a href="https://en.pronouns.page">prns.page</a> 𝆹𝅥𝆹𝅥
+<p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://onekinnie.straw.page">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> 𝆹𝅥𝆹𝅥
 
 
 <p align="center">★ pics are from my student spirit ep. 5 and the "actors au" thing ★
