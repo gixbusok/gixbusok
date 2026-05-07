@@ -32,6 +32,12 @@ mewgenics  ,  the end is nigh (im a newbie) , detroit: become human , rain world
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://gixbusok.straw.page/">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> • <a href="https://aoshi.atabook.org/">atabook</a> 𝆹𝅥𝆹𝅥
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ojtnffpro77mk4hkdhmadyp6ba&cover_image=true&theme=natemoo-re&show_offline=true&background_color=c987bb&interchange=false&profanity=false&bar_color=c987bb&bar_color_cover=false">
+  </a>
+</p>
+
 
   <p align="center"><img width="744" height="428" alt="тинк низ" src="https://github.com/user-attachments/assets/aa03276d-2078-44d4-90d8-309d6a9cb692" />
 
