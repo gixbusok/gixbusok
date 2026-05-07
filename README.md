@@ -29,7 +29,7 @@ mewgenics , the end is nigh (im a newbie) , detroit: become human , rain world ,
 
 
 <p align="center"> 
-  ★ 𝙘𝙝𝙚𝙘𝙠 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤! :)
+  ★ sign ata ! :)
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://gixbusok.straw.page/">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> • <a href="https://aoshi.atabook.org/">atabook</a> 𝆹𝅥𝆹𝅥
 
