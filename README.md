@@ -11,7 +11,8 @@
 
 
 <p align="center">★ im DEF going to remake that!!! ★
-<p align="center">
-<p align="center">  <img width="800" height="900" alt="me" src="https://github.com/elijahdouchnov/elijahdouchnov/blob/c29dd055b2f7dcdc1694907ae2fd6827c842a917/4eb8582a9de2e40d7b1ab6867680252c.jpg" /> </p>
 
 <p align="center"> Аааааа гитхаб
+
+  <p align="center"><img width="736" height="414" alt="1000267571" src="https://github.com/user-attachments/assets/ba1a8088-d9c7-44a0-83d5-44b67d01e8bd" />
+
