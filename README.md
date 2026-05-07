@@ -1,3 +1,6 @@
+
+<div align="center"> <img width="744" height="363" alt="тинк верх" src="https://github.com/user-attachments/assets/b692f342-6f47-4ba1-8aaf-55907bfd7881" />
+
 <p align="center">
 $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂 / 𝖾𝗅𝗂𝗃𝖺𝗁 / 𝗍𝖺𝖼𝗈 . 16 𝗒.𝗈 , rus 𝆹𝅥𝆹𝅥}}$ <br>
   
@@ -26,7 +29,7 @@ mewgenics , the end is nigh (im a newbie) , detroit: become human , rain world ,
 
 
 <p align="center"> 
-  ★ 𝙘𝙝𝙚𝙘𝙠 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤! i cant really put everything i want here because i suck at coding and uh :)
+  ★ 𝙘𝙝𝙚𝙘𝙠 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤! :)
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://gixbusok.straw.page/">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> • <a href="https://aoshi.atabook.org/">atabook</a> 𝆹𝅥𝆹𝅥
 
