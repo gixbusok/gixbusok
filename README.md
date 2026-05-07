@@ -4,7 +4,7 @@
 <p align="center">
 $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃𝖺𝗁ㅤ/ㅤ𝗍𝖺𝖼𝗈ㅤ.ㅤ16 𝗒.𝗈ㅤ,ㅤrus 𝆹𝅥𝆹𝅥}}$ <br>
   
-<p align="center"> $\color{#e0b5d1}{\textsf{17+ㅤorㅤ14-ㅤ𝗱𝗻𝗶𝘂𝗶𝗱ㅤ/ㅤ𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
+<p align="center"> $\small\color{#e0b5d1}{\textsf{17+ㅤorㅤ14-ㅤ𝗱𝗻𝗶𝘂𝗶𝗱ㅤ/ㅤ𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
 
 <details align=middle>
 <summary>$${\color{#ffffff}dni}$$</summary>
@@ -24,11 +24,25 @@ $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃�
 mewgenics  ,  the end is nigh (im a newbie) , detroit: become human , rain world , slime rancher , night in the woods , dandy's world , one wheat mark , metal family , my student spirit , ultrakill , phighting! , dont turn left or something like that and much much more. im multifandom. i also like cats
 </details>
 
-<p align="center"> iㅤspeakㅤrussianㅤandㅤenglishㅤ.ㅤtryingㅤtoㅤlearnㅤindonesian 🥹
+<details align=middle>
+<summary>$${\color{#ffffff}byi...}$$</summary>
 
+  
+i am NOT a talkative person , mostly because my english is really bad or because i am busy. if i dont respond it doesnt mean that i dislike you; i just dont know how to answer .
+
+
+i would never dm someone first. sorry not sorry. im tired
+
+i have uncontrollable agression. BUT like 99.9% of the time im sweet!
+</details>
+
+
+![](https://komarev.com/ghpvc/?username=gixbusok&color=e86ab4)
+
+<p align="center"> $\color{#e0b5d1}{\textsf{iㅤspeakㅤrussianㅤandㅤenglishㅤ.ㅤtryingㅤtoㅤlearnㅤindonesian 🥹}}$
 
 <p align="center"> 
-  ★ㅤsignㅤataㅤ!ㅤ:)
+  $\small\color{#e0b5d1}{\textsf{★ㅤsignㅤataㅤ!ㅤ:)}}$
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://gixbusok.straw.page/">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> • <a href="https://aoshi.atabook.org/">atabook</a> 𝆹𝅥𝆹𝅥
 
