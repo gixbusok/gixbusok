@@ -2,6 +2,13 @@
 $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂 / 𝖾𝗅𝗂𝗃𝖺𝗁 / 𝗍𝖺𝖼𝗈 . 16 𝗒.𝗈 , russian 𝆹𝅥𝆹𝅥}}$ <br>
   
 <p align="center"> $\color{#e0b5d1}{\textsf{17+ or 14- 𝗱𝗻𝗶𝘂𝗶𝗱 / 𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
+
+<details align=middle>
+<summary>$${\color{#ffffff}dni}$$</summary>14- or 17+
+ 
+  idk
+</details>
+
   
 <p align="center"> i speak russian and english. trying to learn indonesian 🥹
 
