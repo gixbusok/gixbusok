@@ -6,6 +6,10 @@ $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃�
   
 <p align="center"> $\small\color{#e0b5d1}{\textsf{17+ㅤorㅤ14-ㅤ𝗱𝗻𝗶𝘂𝗶𝗱ㅤ/ㅤ𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
 
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/efc7bec42f472c33a4e781436122d2f6/2766111dcce23db4-fd/s100x200/b57ab576f1831e4eed49b1072abd04e251edd46b.gifv" /> <img src="https://64.media.tumblr.com/7a1193cdae3f7a51b43464abe131501b/08eb5d7ebc8b8427-d2/s100x200/3574184497a3e9833bfe6c36742b17d745bd55dc.gifv" />
+
 <details align=middle>
 <summary>$${\color{#ffffff}dni}$$</summary>
   
