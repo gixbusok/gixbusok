@@ -36,5 +36,6 @@ mewgenics , the end is nigh (im a newbie) , detroit: become human , rain world ,
 <p align="center">
 $\color{#e0b5d1}{\textsf{★ im DEF going to remake that!!! ★}}$
 
-  <p align="center"><img width="736" height="414" alt="1000267571" src="https://github.com/user-attachments/assets/ba1a8088-d9c7-44a0-83d5-44b67d01e8bd" />
+  <p align="center"><img width="744" height="428" alt="тинк низ" src="https://github.com/user-attachments/assets/aa03276d-2078-44d4-90d8-309d6a9cb692" />
+
 
