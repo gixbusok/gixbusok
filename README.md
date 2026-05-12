@@ -1,4 +1,4 @@
-
+best wieved on pc
 <div align="center"> <img width="744" height="363" alt="тинк верх" src="https://github.com/user-attachments/assets/b692f342-6f47-4ba1-8aaf-55907bfd7881" />
 
 <p align="center">
