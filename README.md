@@ -1,4 +1,5 @@
 best wieved on pc
+please read "byi" if you think im problematic and i hate my friends or something like that...
 <div align="center"> <img width="744" height="363" alt="тинк верх" src="https://github.com/user-attachments/assets/b692f342-6f47-4ba1-8aaf-55907bfd7881" />
 
 <p align="center">
@@ -38,8 +39,9 @@ i am NOT a talkative person , mostly because my english is really bad or because
 i would never dm someone first. sorry not sorry. im tired
 
 i have uncontrollable agression. BUT like 99.9% of the time im sweet!
-</details>
 
+i appear to be extremely mean when im near goose, one of my friends. its our style, we've talked with eachother like this for like a year i think and we're comfortable with it. we like bullying eachother. we're kind to our other friends and strangers; we just prefer to "hate" eachother rather than talking kindly and normally. im writing this incase someone thinks i hate everyone and im mean to everyone and i dont respect boundaries and im gonna joke about sensitive topics if youre not comfortable with them blah blah blah. i would NEVER say something that is uncomfortable for some (except goose ofc we hate eachother). i respect everyone's boundaries. 
+</details>
 
 ![](https://komarev.com/ghpvc/?username=gixbusok&color=e86ab4)
 
