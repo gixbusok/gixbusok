@@ -40,7 +40,9 @@ i would never dm someone first. sorry not sorry. im tired
 
 i have uncontrollable agression. BUT like 99.9% of the time im sweet!
 
-i appear to be extremely mean when im near goose, one of my friends. its our style, we've talked with eachother like this for like a year i think and we're comfortable with it. we like bullying eachother. we're kind to our other friends and strangers; we just prefer to "hate" eachother rather than talking kindly and normally. im writing this incase someone sees me going like "ohhh i know where you live you fat son of a bitch" with goosya and thinks i hate everyone and im mean to everyone and i dont respect boundaries and im gonna joke about sensitive topics if youre not comfortable with them blah blah blah. i would NEVER say something that is uncomfortable for some (except goose ofc we hate eachother). i respect everyone's boundaries. 
+i appear to be extremely mean when im with goose. that's not because i disrespect their boundaries tho, we AGREED that we like to bully each other's and thats just how we show our love to eachother. we (especially me) are not mean to another people; we respect everyone's boundaries and will never say a thing that makes someone uncomfy. but with goosya we can just say something like "you're going to die tomorrow you moron i hate you aaa die!!" in each other's faces and it is normal in our friendship. please do not think that i said something bad to you specifically. except goose. ofc i hate you my child.
+
+apart of that i love people and try to be kind and understanding towards everyone when i can
 </details>
 
 ![](https://komarev.com/ghpvc/?username=gixbusok&color=e86ab4)
