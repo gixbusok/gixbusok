@@ -28,7 +28,7 @@ $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃�
 
 <details align=middle>
 <summary>$${\color{#ffffff}myㅤinterests}$$</summary>
-mewgenics  ,  the end is nigh (im a newbie) , detroit: become human , rain world , slime rancher , night in the woods , dandy's world , one wheat mark , metal family , my student spirit , ultrakill , phighting! , dont turn left or something like that and much much more. im multifandom. i also like cats
+mewgenics  ,  the end is nigh (im a newbie) , detroit: become human , rain world , slime rancher , night in the woods , dandy's world , one wheat mark , metal family , my student spirit , ultrakill , phighting! , sf\dawtde and much much more. im multifandom. i also like cats
 </details>
 
 <details align=middle>
@@ -40,11 +40,10 @@ i am NOT a talkative person , mostly because my english is really bad or because
 
 i would never dm someone first. sorry not sorry. im tired
 
-i have uncontrollable agression. BUT like 99.9% of the time im sweet!
+i have uncontrollable agression. we've not discovered if i have any disorder yet and i am unable to visit a psychologist.
 
-i appear to be extremely mean when im with goose. that's not because i disrespect their boundaries tho, we AGREED that we like to bully each other's and thats just how we show our love to eachother. we (especially me) are not mean to another people; we respect everyone's boundaries and will never say a thing that makes someone uncomfy. but with goosya we can just say something like "you're going to die tomorrow you moron i hate you aaa die!!" in each other's faces and it is normal in our friendship. please do not think that i said something bad to you specifically. except goose. ofc i hate you my child.
+i am extremely mean when im with goose. they are my IRL friend and i do not want anyone to think we hate eachother (we do of course). dni if you think that i will be mean and swear at others
 
-apart of that i love people and try to be kind and understanding towards everyone when i can
 </details>
 
 ![](https://komarev.com/ghpvc/?username=gixbusok&color=e86ab4)
