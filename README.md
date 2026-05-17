@@ -19,7 +19,7 @@ $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃�
 
   forsaken players/supporters - thin ice i despise forsaken
 
-   people with bpd are also thin ice. sorry my experiences with everyone who had ocd have been awful. im mentally stable.
+   people with bpd are also thin ice. sorry my experiences with everyone who had bpd have been awful. im mentally stable.
    
    people who hate russian/ukranian people specifically okkk dont go into politics
 
