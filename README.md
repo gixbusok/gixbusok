@@ -22,6 +22,8 @@ $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃�
    people with bpd are also thin ice. sorry my experiences with everyone who had ocd have been awful. im mentally stable.
    
    people who hate russian/ukranian people specifically okkk dont go into politics
+
+   tier 4 supporters - veeery thin ice. i know they wont even notice me but it still needs to be here. 99% (or im just that unlucky) yall are REAALLLY mean towards anyone who's not your friend or who's not atleast a tier 2\3 supporter.
 </details>
 
 <details align=middle>
