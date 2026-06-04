@@ -1,15 +1,14 @@
-best wieved on pc
-
 <div align="center"> <img width="744" height="363" alt="тинк верх" src="https://github.com/user-attachments/assets/b692f342-6f47-4ba1-8aaf-55907bfd7881" />
 
 <p align="center">
-$\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃𝖺𝗁ㅤ/ㅤashㅤ.ㅤ16 𝗒.𝗈ㅤ,ㅤrus 𝆹𝅥𝆹𝅥}}$ <br>
+$\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂 / 𝖾𝗅𝗂𝗃𝖺𝗁 /ㅤash . 16 𝗒.𝗈 , rus 𝆹𝅥𝆹𝅥}}$ <br>
   
-<p align="center"> $\small\color{#e0b5d1}{\textsf{17+ㅤorㅤ14-ㅤ𝗱𝗻𝗶𝘂𝗶𝗱ㅤ/ㅤ𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
+<p align="center"> $\small\color{#e0b5d1}{\textsf{17+ orㅤ14- 𝗱𝗻𝗶𝘂𝗶𝗱 / 𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
 
 
 <p align="center">
   <img src="https://64.media.tumblr.com/efc7bec42f472c33a4e781436122d2f6/2766111dcce23db4-fd/s100x200/b57ab576f1831e4eed49b1072abd04e251edd46b.gifv" /> <img src="https://64.media.tumblr.com/7a1193cdae3f7a51b43464abe131501b/08eb5d7ebc8b8427-d2/s100x200/3574184497a3e9833bfe6c36742b17d745bd55dc.gifv" />
+<p align="center">  <img src="https://64.media.tumblr.com/50562d174d5359cfc0b17440967d7b41/07b0db400b290d56-30/s250x400/324db1979880258993df9fa1e499d3ff23bc0193.gifv" />
 
 <details align=middle>
 <summary>$${\color{#ffffff}dni}$$</summary>
@@ -23,7 +22,7 @@ $\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂ㅤ/ㅤ𝖾𝗅𝗂𝗃�
    
    people who hate russian/ukranian people specifically okkk dont go into politics
 
-   tier 4 supporters - veeery thin ice. i know they wont even notice me but it still needs to be here. 99% (or im just that unlucky) yall are REAALLLY mean towards anyone who's not your friend or who's not atleast a tier 2\3 supporter.
+   mean tier 4 supporters that despise everyone or mean people in general
 </details>
 
 <details align=middle>
@@ -48,10 +47,10 @@ i am extremely mean when im with goose. they are my IRL friend and i do not want
 
 ![](https://komarev.com/ghpvc/?username=gixbusok&color=e86ab4)
 
-<p align="center"> $\color{#e0b5d1}{\textsf{iㅤspeakㅤrussianㅤandㅤenglishㅤ.ㅤtryingㅤtoㅤlearnㅤindonesian 🥹}}$
+<p align="center"> $\color{#e0b5d1}{\textsf{i speak russian and english . trying to learn indonesian 🥹}}$
 
 <p align="center"> 
-  $\small\color{#e0b5d1}{\textsf{★ㅤsignㅤataㅤ!ㅤ:)}}$
+  $\small\color{#e0b5d1}{\textsf{★ㅤsign ata ! :)}}$
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://gixbusok.straw.page/">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> • <a href="https://aoshi.atabook.org/">atabook</a> 𝆹𝅥𝆹𝅥
 
