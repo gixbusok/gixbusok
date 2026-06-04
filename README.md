@@ -1,10 +1,11 @@
 <p align="center"> ₊ best wieved on pc/pc mode !!!
+  <p align="center"> also i am tink irl
 <div align="center"> <img width="744" height="363" alt="тинк верх" src="https://github.com/user-attachments/assets/b692f342-6f47-4ba1-8aaf-55907bfd7881" />
 
 <p align="center">
-$\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂 / 𝖾𝗅𝗂𝗃𝖺𝗁 /ㅤash . 16 𝗒.𝗈 , rus 𝆹𝅥𝆹𝅥}}$ <br>
+$\color{#e0b5d1}{\textsf{𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂 / 𝖾𝗅𝗂𝗃𝖺𝗁 / ash . 16 𝗒.𝗈 , rus 𝆹𝅥𝆹𝅥}}$ <br>
   
-<p align="center"> $\small\color{#e0b5d1}{\textsf{17+ orㅤ14- 𝗱𝗻𝗶𝘂𝗶𝗱 / 𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
+<p align="center"> $\small\color{#e0b5d1}{\textsf{17+  or  14- 𝗱𝗻𝗶𝘂𝗶𝗱 / 𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.}}$ 
 
 
 <p align="center">
@@ -51,7 +52,7 @@ i am extremely mean when im with goose. they are my IRL friend and i do not want
 <p align="center"> $\color{#e0b5d1}{\textsf{i speak russian and english . trying to learn indonesian 🥹}}$
 
 <p align="center"> 
-  $\small\color{#e0b5d1}{\textsf{★ㅤsign ata ! :)}}$
+  $\small\color{#e0b5d1}{\textsf{★ sign ata ! :)}}$
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://gixbusok.straw.page/">straw</a> • <a href="https://en.pronouns.page/@aosh">prns.page</a> • <a href="https://aoshi.atabook.org/">atabook</a> 𝆹𝅥𝆹𝅥
 
